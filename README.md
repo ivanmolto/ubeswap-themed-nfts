@@ -60,13 +60,15 @@ Space ube with a community of sliced solar ubes in a path to decentralisation in
 
 ---
 
+## Resilient Ube
+A powerful and resilient ube with sliced solar ubes around it in a dark cyan galaxy.
 
 
 ![](space-yam-9.png)
 
 ---
 
-## A Whale Ube 
+## A Whale Ube
 A whale ube standing in the outer space with sliced solar ubes around it in a regen galaxy with green stars.
 
 
