@@ -3,7 +3,11 @@
 Join us in a space yam to celebrate the path to a destiny of full community control with Ubeswap Celo DEX!
 A biopunk and organic Ubeswap themed NFT collection of sliced solar ubes and asteroids in outer space.
 
+[Ariswap NFT collection link](https://ariswap.co/collection-details/NjNhMDgxMDBlNDMzM2EwZDcwZjVjYWM4)
+
 Made with love for the Ubeswap Destiny Hackathon sponsored by [Ubeswap](https://ubeswap.org) and [Celo](https://celo.org) hosted by [buidlbox](https://buidlbox.io/) and powered by [Gitcoin](https://gitcoin.co).
+
+Available on Ariswap NFT Marketplace [can't wait to buy one](https://ariswap.co/collection-details/NjNhMDgxMDBlNDMzM2EwZDcwZjVjYWM4)
 
 Please feel free to contact me at discord: ivanmolto#3768
 
